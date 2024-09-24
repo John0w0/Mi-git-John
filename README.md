@@ -1,1 +1,1 @@
-"Nunca será una solución dar educación a los pobres si lo que les das es una pobre educación." -Canserbero
+"Ríete en la tristeza, llora de alegría y no olvides que cada día que pasa se acorta tu vida. -Canserbero
