@@ -1,1 +1,1 @@
-"Nunca será una solución dar educación a los pobres si lo que les das es una pobre educación." -Canserbero
+"Corazón y cuerpo no hablan el mismo idioma." -Canserbero
