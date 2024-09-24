@@ -1,0 +1,1 @@
+"Nunca será una solución dar educación a los pobres si lo que les das es una pobre educación." -Canserbero
