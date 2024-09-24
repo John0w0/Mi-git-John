@@ -1,1 +1,1 @@
-"Ríete en la tristeza, llora de alegría y no olvides que cada día que pasa se acorta tu vida. -Canserbero
+"si" -Canserbero
