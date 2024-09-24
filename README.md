@@ -1,1 +1,1 @@
-"Nunca será una solución dar educación a los pobres si lo que les das es una pobre educación." -Canserbero
+"Detesto cuando pasa esto, tener un sueño y sentir que fue cierto aun cuando ya estás despierto." -Canserbero
